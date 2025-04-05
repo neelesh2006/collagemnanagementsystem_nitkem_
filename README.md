@@ -1,1 +1,1 @@
-# collagemnanagementsystem_nitkem_
+# collagemnanagementsystem_nitk_
